@@ -1,0 +1,1 @@
+# Maptype1
